@@ -3,7 +3,7 @@
 - FREE Discord Nitro 🚀
 - Infinite Nitro ♾️
 - You can sell this Nitro for Proft 💸💵🤑
-- Easy to SetUp
+- Easy to SetUp 🤔❌
 
 
 # Setup #
